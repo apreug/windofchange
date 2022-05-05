@@ -1,0 +1,1 @@
+Wind of change Songtext, Scorpions
