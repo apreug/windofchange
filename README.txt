@@ -1,1 +1,1 @@
-Wind of change Songtext, Scorpions, 1990
+Wind of change Songtext, Scorpions, Langenhagen
